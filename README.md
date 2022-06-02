@@ -4,7 +4,7 @@
 <br>
 <br>
 
-<p><img align="center" src="https://64.media.tumblr.com/cf5c4c5c0a99ba54a62593bf85ffac90/tumblr_inline_pjfaxaCHjQ1secf3a_640.gif" alt="adam-pw" /></p>
+<p align="center"><img align="center" src="https://64.media.tumblr.com/cf5c4c5c0a99ba54a62593bf85ffac90/tumblr_inline_pjfaxaCHjQ1secf3a_640.gif" alt="adam-pw" /></p>
 <br>
 <br>
 
